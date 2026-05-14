@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Craft for macOS macro with premium Macro for Craft for macOS - OCR scanning and note encryption. Featuring OCR scanning and note encryption, it's the best choice
 
 
 
